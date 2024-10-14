@@ -1,0 +1,1 @@
+It is importatnt to fully understand the work first because I want to be a web developer and that is what professsional do
